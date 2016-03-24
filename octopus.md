@@ -6,3 +6,5 @@ Octopus Names
 * World Cup Paul - age 2
 
 Paul the [world cup octopus](https://www.youtube.com/watch?v=3ESGpRUMj9E) is dead so lets celebrate his impact on humanity.
+
+heart shaped glasses!!!
