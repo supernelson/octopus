@@ -1,1 +1,1 @@
-Paul the Octopus just bought glasses!
+octos just got hooked up with some dope ass shades
